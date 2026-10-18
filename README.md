@@ -1,0 +1,2 @@
+# premium-whale-tooth-001-alternative-ivory-scrimshaw-ma
+Stop wasting time and money on materials that crack, discolor, or just don't carve right. This Notion catalog curates the best alternative ivories for scrimshaw, so you can create ethically without compromising on quality.  This catalog solves the problem of finding viable scrimshaw materials by providing a centralized, detailed database of alterna
